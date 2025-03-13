@@ -5,4 +5,6 @@ Most recently, I was a software engineer at Rocket Pharmaceuticals. In this capa
 
 Former professors and colleagues describe me as a dedicated, analytical, and highly driven software engineer who can be relied on to offer superior solutions that deliver results on time and under budget. 
 
-I am pursuing new opportunities and can be reached through this profile,
+I am pursuing new opportunities and can be reached through my LinkedIn.
+
+have a great day!
